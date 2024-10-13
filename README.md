@@ -1,3 +1,6 @@
-# birbskies-texturepack
-# texturepack for bribskies.minehut.gg
-# made by: Stoof#7450
+
+ ~~birbskies-texturepack!~~   
+ ~~texturepack for bribskies.minehut.gg~~  
+Birbskies has closed and is no longer online
+### made by: Stoof#7450
+
